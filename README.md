@@ -1,7 +1,7 @@
 # Albert Khim Barlam
 
 **General VA & Operations Support · CRM · Workflow Automation · Web Development**  
-Pampanga, Philippines
+Philippines
 
 I help small businesses organize day-to-day operations and reduce repetitive work. My experience covers client communication, scheduling, CRM setup, website delivery, and AI-assisted workflows. I have built 10+ websites and 2 apps while supporting business teams remotely.
 
